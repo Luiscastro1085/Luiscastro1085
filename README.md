@@ -1,5 +1,5 @@
   - 👋 Hi, I’m @Luiscastro1085        
-- 👀 I’m interested in  la progración       
+- 👀 I’m interested in  la programación       
 - 🌱 I’m currently learning  un poco de este mundo de programar hayo que es muy interesante    
 - 💞️ I’m looking to collaborate on  algunos proyectos  y asi aprender mucho mas            
 - 📫 mi contacto es luiscastro1085@gmail.com
